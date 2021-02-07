@@ -10,3 +10,4 @@
 #Lien de la vidéo: https://youtu.be/iuGRhN93PDk (quête 19)
 #Lien de la vidéo: https://youtu.be/RuxQEL1Inbc (quête 20)
 #Lien de la vidéo: https://youtu.be/zynjncYR3Rw  (quête 21)
+#Lien de la vidéo: https://youtu.be/19R1SVFgLB4  (quête 22)
